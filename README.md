@@ -1,0 +1,1 @@
+# HAM-dan-Hudud-Potong-Tangan-Rajam-pada-Masa-Turunnya-Ayat
